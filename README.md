@@ -12,20 +12,7 @@
 <h1>🌊 PROOF🎬 🌊</h1>
 
 
-https://user-images.githubusercontent.com/93824226/224772072-c9f767c6-e265-42dd-951a-d7238d449b1d.mp4
-
-
-
-
-https://user-images.githubusercontent.com/93824226/224707531-13c89059-9537-4ac5-87a6-40f3e1508a3d.mp4
-
-
-
-
-
-https://user-images.githubusercontent.com/93824226/224642391-d1f90a2d-4730-4bbb-939e-5231ba658fe2.mp4
-
-
+https://kosred.com/a/xstwab.mp4
 
 
 # SETUP VIDEO BROOO
@@ -36,7 +23,7 @@ https://user-images.githubusercontent.com/93824226/233914223-9632b0c3-3034-4709-
 
 
 
-# MAKE BY Hex1629 (👤🛠️)
+# MAKE BY UCEN HAXOR (👤🛠️)
 💸 YOU CAN RESELL BUT YOU NEED TO WRITE CREDIT ME.
 
 🛠️📁 IF YOU MAKE NEW VERSIONS WRITE CREDIT YOU TOO.
